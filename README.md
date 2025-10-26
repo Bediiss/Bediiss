@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bediiss
-- 👀 I’m interested in getting a scholarship to germany (pls)
-- 🌱 I’m currently learning telecommunications
+- 👀 I’m interested in getting a scholarship (pls)
+- 🌱 I’m currently enrolled in a bachelor for telecommunications
 - 📫 How to reach me @bediskouki on most social media
 - ⚡ Fun fact: I love kanye
 
